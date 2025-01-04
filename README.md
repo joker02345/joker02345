@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @joker02345
+- 👋 Hi, I’m @joker02345 frome Sweden 
 - 👀 I’m interested in solutions 
 - 🌱 I’m  currently learning about krypted apps, and want to learn more about it.
 - i wanna find a solution for a crypted   
