@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @joker02345
-- 👀 I’m interested in solution, 
-- 🌱 I’m currently learning about krypted apps
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in solutions 
+- 🌱 I’m  currently learning about krypted apps, and want to learn more about it.
+- i wanna find a solution for a crypted   
+- 🚨 Wana learn about safe social ap fore friends and work, tje ap need to ne safe sou no one else can open it ore track it.
 - 📫 How to reach me ... jari@gmx.se
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
